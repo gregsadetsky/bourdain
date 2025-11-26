@@ -36,6 +36,8 @@ CNN asked me to provide some favorite 80's songs, and I assumed they weren't exp
 
 ### Caption the Donald!
 
+##### ((the image for this list could not be recovered - note from greg))
+
 C'Mon! Everybody can play! I'll go first!
 
 1. The candidate struggles to deliver a Yen Shee Baby. Come on Donald! Bear down! You can do it, bro'!
