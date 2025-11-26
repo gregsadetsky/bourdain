@@ -1,6 +1,6 @@
 <img width="400" src="https://github.com/user-attachments/assets/62aaebdd-6531-4e1f-9b37-c69b9d5cc521" /><br/>
 
-Anthony Bourdain published about 30 lists on the defunt li.st web site around 2015. This page presents a partial archive of those, recovered from the [Internet Archive](https://archive.org/).
+Anthony Bourdain published about 30 lists on the defunct li.st web site around 2015. This page presents a partial archive of those, recovered from the [Internet Archive](https://archive.org/).
 
 Lists for which the content could not be found are listed [below](#lost-anthony-bourdain-lists). If you know where to find them, [email me](mailto:hi@greg.technology). Thanks to RB for the spark.
 
