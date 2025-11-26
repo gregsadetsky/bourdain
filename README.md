@@ -1,1 +1,1 @@
-# Partial Archive of Anthony Bourdain's li.st Content
+# Anthony Bourdain's Lost Li.st's
