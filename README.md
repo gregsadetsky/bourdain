@@ -208,7 +208,7 @@ Want to go where everybody else is NOT going? Discover things for yourself? Have
 ---
 ---
 
-#### Lost Antoine Bourdain li.st's:
+#### Lost Anthony Bourdain li.st's:
 
 | Title | Date |
 |-------|------|
