@@ -4,22 +4,6 @@ Anthony Bourdain published about 30 lists on the defunt li.st web site around 20
 
 Lists for which the content could not be found are listed [below](#lost-anthony-bourdain-lists). If you know where to find them, [email me](mailto:hi@greg.technology). Thanks to RB for the spark.
 
-## Li.st's
-
-- [80's Playlist](#80s-playlist)
-- [Caption the Donald!](#caption-the-donald)
-- [Crimes Against Food](#crimes-against-food)
-- [Food I'm Thinking About](#food-im-thinking-about)
-- [Food on Film](#food-on-film)
-- [NAMES FOR MY BAND](#names-for-my-band)
-- [PERFECT ALBUMS](#perfect-albums)
-- [SCARY SHIT!!!](#scary-shit)
-- [SEQUELS THAT MIGHT (ARGUABLY) BE BETTER THAN THE ORIGINAL](#sequels-that-might-arguably--be-better-than-the-original)
-- [SIX TRUE THINGS ABOUT DINNER WITH OBAMA](#six-true-things-about-dinner-with-obama)
-- [SOME FILMS FROM THE CRITERION COLLECTION](#some-films-from-the-criterion-collection)
-- [SOME WEBSITES YOU SHOULD VISIT](#some-websites-you-should-visit)
-- [Underrated, Douche-free Destinations](#underrated-douche-free-destinations)
-
 ---
 ---
 ---
