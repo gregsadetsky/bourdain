@@ -163,23 +163,25 @@ Bun Cha is a typical Hanoi dish, decidedly everyday, and much loved by locals . 
    Pasolini's pioneering, brilliant, merciless and merciful story of a mother's love, class war, and rough trade--persistent obsessions in his later work, came together in perfect balance in this early masterpiece. Magnani is, of course, riveting in the lead role, but the largely untrained non-actor cast bring a harsh authenticity to as unromantic a depiction of Rome as has ever been filmed.
 2. [PANDORA'S BOX](https://www.criterion.com/films/362-pandora-s-box)  
    Two words. Louise Brooks. Never has a more beautiful, intelligent, quirky, sexy, uniquely commanding character graced the screen. 
-3. [UNDER THE VOLCANO](https://www.criterion.com/films/837-under-the-volcano): Some books are unfilmable. Malcom Lowry's dense, symbolism loaded masterwork took him his whole life to write and it stood to reason that there was no way that a two hour film could ever contain its sprawling, portentous, narrative, it's linguistic pyrotechnics.  
+3. [UNDER THE VOLCANO](https://www.criterion.com/films/837-under-the-volcano)  
+   Some books are unfilmable. Malcom Lowry's dense, symbolism loaded masterwork took him his whole life to write and it stood to reason that there was no way that a two hour film could ever contain its sprawling, portentous, narrative, it's linguistic pyrotechnics.  
    But John Huston did a VERY creditable job here--and Albert Finney pretty much puts  his stamp on the role of the Consul forever. If you go back and read the book, you will always picture Finney. It's a terrific labor of love, doomed to failure..yet it manages to squeak out a remarkable if necessarily compressed success. 
-4. [IN THE REALM OF THE SENSES](https://www.criterion.com/films/1287-in-the-realm-of-the-senses?q=autocomplete)  
+5. [IN THE REALM OF THE SENSES](https://www.criterion.com/films/1287-in-the-realm-of-the-senses?q=autocomplete)  
    It's porn. People having sex. Real sex. On camera --and its perhaps the one time in the history of cinema where that's interesting. Based on a true story of obsessive love, Oshima's transgressive classic is beautiful without prettifying anything, graphic without being particularly prurient, romantic without illusion, and at all times deeply political. 
-5. [RIDE WITH THE DEVIL](https://www.criterion.com/films/17282-ride-with-the-devil)  
+6. [RIDE WITH THE DEVIL](https://www.criterion.com/films/17282-ride-with-the-devil)  
    is a terrific adaptation of the as-terrific  Daniel Woodrell Civil War novel about guerillas war in Missouri and its aftermath. It's also among Ang Lee's best films, a criminally neglected classic, and a great performance by Toby Maguire. Hell, EVERYBODY is great in it. Beautiful writing and dialogue delivered flawlessly. 
-6. [THIEF](https://www.criterion.com/films/28024-thief)  
+7. [THIEF](https://www.criterion.com/films/28024-thief)  
    Michael Mann's cold, shiny early work with James Caan as a just out of jail master safecracker and an as wonderful Tuesday Weld in one of cinema's great dysfunctional relationships. Watching Caan try and steal and buy and kill his way to the "normal" life he dreamed of in prison is both chilling and heartbreaking.
-7. [THE GREAT BEAUTY](https://www.criterion.com/films/28604-the-great-beauty)  
+8. [THE GREAT BEAUTY](https://www.criterion.com/films/28604-the-great-beauty)  
    No film in recent memory was the sensory punch in the gut that this one was. When I saw it the first time, I was devastated by its audaciousness, it's lush, lush, gorgeousness--it's yes--great beauty. What film has ever managed to be an "homage" to a classic Fellini film and manage ( arguably) to surpass the original? I think it's the greatest film I've seen in a decade. Few film's cinematography alone can make you cry. This one does. 
-8. [THE AMERICAN FRIEND](https://www.criterion.com/films/28763-the-american-friend)  
+9. [THE AMERICAN FRIEND](https://www.criterion.com/films/28763-the-american-friend)  
    This quirky Wim Wenders film is, to my mind, the best adaptation from Patricia Highsmith's Tom Ripley series and the only one to capture both the charm and humor as well as the darkness of its deeply sociopathic central character. Dennis Hopper is the amiably murderous Ripley--and Bruno Ganz his instrument. 
-9. [CHIMES AT MIDNIGHT](https://www.criterion.com/films/28756-chimes-at-midnight)  
+10. [CHIMES AT MIDNIGHT](https://www.criterion.com/films/28756-chimes-at-midnight)  
    One of Orson Welles' finest works, a wildly influential adaptation of Shakeseare made for about ten dollars over the span of many years. This is filmmaking at its purest and best. The battle scenes alone are a master class in independent filmmaking on a budget. 
-10. [THE SHOOTING / RIDE THE WHIRLWIND](https://www.criterion.com/boxsets/1073-the-shooting-ride-in-the-whirlwind)  
+11. [THE SHOOTING / RIDE THE WHIRLWIND](https://www.criterion.com/boxsets/1073-the-shooting-ride-in-the-whirlwind)  
    two curiosities from Monte Hellman , two vaguely psychedelic Westerns with Jack Nicholsen well worth seeing for their sheer strangeness and as a reflection of interesting times.  It's worth remembering that the Psych Western was briefly something of a genre back in the day. These are two of the best. 
-11. [DR. STRANGELOVE](https://www.criterion.com/films/28822-dr-strangelove-or-how-i-learned-to-stop-worrying-and-love-the-bomb?q=autocomplete): My father loved this film so much, he couldn't wait for me to grow old enough to watch it. I think I was 8 or 9 when he first showed it to me and it shaped my life. he message was clear: we are all going to die. It will be funny. Also: life is filled with the absurd and hypocritical and that too can be funny.  
+12. [DR. STRANGELOVE](https://www.criterion.com/films/28822-dr-strangelove-or-how-i-learned-to-stop-worrying-and-love-the-bomb?q=autocomplete)  
+   My father loved this film so much, he couldn't wait for me to grow old enough to watch it. I think I was 8 or 9 when he first showed it to me and it shaped my life. he message was clear: we are all going to die. It will be funny. Also: life is filled with the absurd and hypocritical and that too can be funny.  
    Peter Sellers, Sterling Hayden and Slim Pickens were highly regarded in my house.  Their names were guarantees of quality as far as my Dad was concerned. But Kubrik was a God.  Truly one of the great films--certainly the greatest satire.  With so many epic, memorizable moments....."Purity of Essence" ! 
 
 ---
