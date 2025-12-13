@@ -6,7 +6,7 @@ Lists for which the content could not be found are listed [below](#lost-anthony-
 
 ---
 
-<div style="font-size:14px;background:yellow">Update!!</div>
+<div style="font-size:16px;background:yellow;font-weight:bold">Update!!</div>
 
 MOST of the missing lists have been recovered! [Please see here](https://sandyuraz.com/blogs/bourdain/).
 
