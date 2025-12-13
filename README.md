@@ -5,6 +5,12 @@ Anthony Bourdain published about 30 lists on the defunct _li.st_ web site around
 Lists for which the content could not be found are listed [below](#lost-anthony-bourdain-lists). If you know where to find them, [email me](mailto:hi@greg.technology). Thanks to RB for the spark.
 
 ---
+
+<div style="font-size:14px;background:yellow">Update!!</div>
+
+MOST of the missing lists have been recovered! [Please see here](https://sandyuraz.com/blogs/bourdain/).
+
+---
 ---
 ---
 
